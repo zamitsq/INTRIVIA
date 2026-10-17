@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [13] Sejauh Ini 
 [kakak fasilnya asik dan teman teman clusternya pada solid]
+
+## Harapan Kuliah 
+[bisa lulus tepat waktu mendapat ipk 3.5+ dan sakses] 
